@@ -1,0 +1,1 @@
+Branding activo: Moth Academy · Aprender · Practicar · Evolucionar. El logo web debe usar la polilla oficial con birrete, no placeholders geométricos.
